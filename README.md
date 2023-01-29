@@ -1,1 +1,1 @@
-# Pet-Simulator-X-TradeScam
+Copyright © 2023. This material is for educational purposes only and not for commercial use. The author does not condone or take any responsibility for any harm or misuse of the information contained in this leaked version of TOO FAST. Use of this information is strictly for harmless pranks among friends and not for any illegal or harmful purposes.
